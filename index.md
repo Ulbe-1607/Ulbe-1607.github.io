@@ -8,3 +8,4 @@ Horatio Hornblower, eine von C. S. Forester erschaffene Romanfigur, ist ein Seeh
 Hornblower sagte:
 > Ich freue mich, dass Sie so denken.
 > Ich habe nur meine Pflicht getan.
+<img src="https://www.record-bee.com/wp-content/uploads/2019/08/Hornblower2-1.jpg?w=473"/>
