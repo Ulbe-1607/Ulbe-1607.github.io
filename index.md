@@ -5,3 +5,6 @@ Horatio Hornblower, eine von C. S. Forester erschaffene Romanfigur, ist ein Seeh
 * Entschlossenheit
 * Intelligenz
 * Wahrhaftigkeit
+Hornblower sagte:
+> Ich freue mich, dass Sie so denken.
+> Ich habe nur meine Pflicht getan.
